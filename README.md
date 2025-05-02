@@ -48,7 +48,7 @@
 ## Output:
 ![Screenshot (106)](https://github.com/user-attachments/assets/a19af1bb-4e44-44e0-ad83-05af91054293)
 ![Screenshot (107)](https://github.com/user-attachments/assets/cff73993-4b94-4af3-aefa-78cdd3589a2a)
-![Uploading Screenshot (108).png…]()
+![Screenshot (108)](https://github.com/user-attachments/assets/a16e2994-5744-4510-835a-729e0e7c0b13)
 
 ### Name:Madhu Shrie J
 ### Register Number:212224100034
